@@ -17,7 +17,7 @@
 
 [**𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚**](https://shadevxz.straw.page)
 
-[**𝙩𝙞𝙠𝙩𝙤𝙠**](www.tiktok.com/@mgcoiin)
+[**𝙩𝙞𝙠𝙩𝙤𝙠**](https://www.tiktok.com/@mgcoiin)
 
 [**𝙞𝙣𝙨𝙩𝙖𝙜𝙧𝙖𝙢**](https://www.instagram.com/mgcoiin/)
 
