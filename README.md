@@ -2,14 +2,16 @@
 
 ![](https://komarev.com/ghpvc/?username=mgcoiiny&label=..†゛&color=7e218f)
 <p align="center">
-  <img width="736" height="736" alt="Untitled94_20260107185623" src="https://github.com/user-attachments/assets/2d002a8b-c280-4a17-9e21-a5eef0410a88" />
+  <img width="500" height="500" alt="Untitled122_20260124003403" src="https://github.com/user-attachments/assets/722709c3-31a6-4ade-91de-b14c0d6b717a" />
+
 
     
   </a>
   <br>
 
+
   
-  <sub><i>𐂯 ㅤ ◞ ㅤ 𝐢𝐭 𝐚𝐥𝐥 𝐬𝐭𝐚𝐫𝐭𝐬 𝐰𝐢𝐭𝐡 𝐛𝐫𝐚𝐯𝐞𝐫𝐲　 𓏼  　 ⏝⏝  </i></sub>
+  <sub><i> 　 　𐂯 ㅤ ◞ ㅤ 𝐚𝐧𝐝 𝐭𝐡𝐞 𝐫𝐞𝐝 𝐨𝐧 𝐦𝐲 𝐟𝐚𝐜𝐞 𝐢𝐬 𝐦𝐚𝐭𝐜𝐡𝐢𝐧𝐠 𝐲𝐨𝐮! <3　 𓏼  　 ⏝⏝  </i></sub>
 </p>
 
 
