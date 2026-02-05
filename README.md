@@ -2,7 +2,8 @@
 
 ![](https://komarev.com/ghpvc/?username=mgcoiiny&label=..†゛&color=7e218f)
 <p align="center">
-  <img width="500" height="500" alt="Untitled122_20260124003403" src="https://github.com/user-attachments/assets/722709c3-31a6-4ade-91de-b14c0d6b717a" />
+  <img width="500" height="500" alt="Untitled141_20260205233426" src="https://github.com/user-attachments/assets/d419f61a-b10a-473f-94e3-ad2bbccabf7e" />
+
 
 
     
