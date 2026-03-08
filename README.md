@@ -1,6 +1,11 @@
 <div align="center">
+<img width="100" height="100" alt="Untitled157_20260308234826" src="https://github.com/user-attachments/assets/a54c3eb4-28c6-4092-839f-d0b258d1c51f" />
+
+<div align="center">
 
 ![](https://komarev.com/ghpvc/?username=mgcoiiny&label=..†゛&color=c21807)
+
+>
 <p align="center">
   <img width="500" height="500" alt="Untitled157_20260308234159" src="https://github.com/user-attachments/assets/b5150d78-6eea-4dfa-9816-4aeb785ff5c8" />
 
@@ -20,10 +25,11 @@
 
 
 
-[**𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚**](https://shadevxz.straw.page)
 
-[**𝙩𝙞𝙠𝙩𝙤𝙠**](https://www.tiktok.com/@mgcoiin)
+[**I**](https://shadevxz.straw.page)
 
-[**𝙞𝙣𝙨𝙩𝙖𝙜𝙧𝙖𝙢**](https://www.instagram.com/mgcoiin/)
+[**II**](https://www.tiktok.com/@mgcoiin)
 
-[**𝙥𝙧𝙤𝙣𝙤𝙪𝙣𝙨𝙥𝙖𝙜𝙚**](https://en.pronouns.page/@mgcoiin)
+[**III**](https://www.instagram.com/mgcoiin/)
+
+[**IIII**](https://en.pronouns.page/@mgcoiin)
