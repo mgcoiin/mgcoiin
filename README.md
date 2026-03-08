@@ -1,8 +1,9 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=mgcoiiny&label=..†゛&color=7e218f)
+![](https://komarev.com/ghpvc/?username=mgcoiiny&label=..†゛&color=c21807)
 <p align="center">
-  <img width="500" height="500" alt="Untitled141_20260205233426" src="https://github.com/user-attachments/assets/d419f61a-b10a-473f-94e3-ad2bbccabf7e" />
+  <img width="500" height="500" alt="Untitled157_20260308234159" src="https://github.com/user-attachments/assets/b5150d78-6eea-4dfa-9816-4aeb785ff5c8" />
+
 
 
 
