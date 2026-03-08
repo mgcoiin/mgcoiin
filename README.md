@@ -26,10 +26,4 @@
 
 
 
-[**I**](https://shadevxz.straw.page)
-
-[**II**](https://www.tiktok.com/@mgcoiin)
-
-[**III**](https://www.instagram.com/mgcoiin/)
-
-[**IIII**](https://en.pronouns.page/@mgcoiin)
+[**𝜗ৎ**](https://shadevxz.straw.page) [**(˶ᵔ ᵕ ᵔ˶)**](https://www.tiktok.com/@mgcoiin) [**₍^. .^₎Ⳋ**](https://www.instagram.com/mgcoiin/) [**𓂃**](https://en.pronouns.page/@mgcoiin)
