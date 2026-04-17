@@ -28,10 +28,3 @@
 
 
 　　
-
-　　<img width="300" height="300" alt="Screenshot 2026-04-06 at 14 12 11" src="https://github.com/user-attachments/assets/40e5db1b-293b-425f-8877-b9119646e4cf" />
-
-
- <img width="300" height="300" alt="Screenshot 2026-04-06 at 14 11 17" src="https://github.com/user-attachments/assets/29fccbd5-570e-43da-a488-763da53746ed" />
-
-my biggest fan @cas hi
