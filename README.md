@@ -3,7 +3,7 @@
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=mgcoiiny&label=..†゛&color=c21807)
+![](https://komarev.com/ghpvc/?username=mgcoiiny&label=✦&color=c21807)
 
 >
 <p align="center">
