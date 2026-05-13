@@ -22,7 +22,7 @@
 
 
 
-[**𝜗ৎ**](https://shadevxz.straw.page) [**(˶ᵔ ᵕ ᵔ˶)**](https://www.tiktok.com/@mgcoiin) [**₍^. .^₎Ⳋ**](https://www.instagram.com/mgcoiin/) [**𓂃**](https://en.pronouns.page/@mgcoiin)
+[**STRAWPAGEৎ**](https://shadevxz.straw.page) [**TIKTOKৎ**](https://www.tiktok.com/@mgcoiin) [**INSTAGRAMৎ**](https://www.instagram.com/mgcoiin/) [**PRONOUNSPAGEৎ**](https://en.pronouns.page/@mgcoiin)
 
 
 
