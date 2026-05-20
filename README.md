@@ -7,15 +7,16 @@
 
 >
 <p align="center">
-  <img width="500" height="500" alt="Untitled157_20260308234159" src="https://github.com/user-attachments/assets/b5150d78-6eea-4dfa-9816-4aeb785ff5c8" />
+  <img width="550" height="550" alt="Başlıksız72_20260520192100" src="https://github.com/user-attachments/assets/d688b91d-edec-4359-843e-7afdc8f2f5d2" />
+
+
 　　
   </a>
   <br>
 
 
   
-  <sub><i> 　 　𐂯 ㅤ ◞ ㅤ 𝐰𝐞'𝐫𝐞 𝐬𝐮𝐜𝐡 𝐚 𝐦𝐞𝐬𝐬 𝐭𝐨𝐠𝐞𝐭𝐡𝐞𝐫,
-  𝐲𝐨𝐮 𝐦𝐚𝐤𝐞 𝐦𝐞 𝐥𝐨𝐬𝐞 𝐦𝐲 𝐭𝐞𝐦𝐩𝐞𝐫 ! <3　 𓏼  　 ⏝⏝  </i></sub>
+  <sub><i> 　 　𐂯 ㅤ ◞ ㅤ " ㅤ 𝗂 ω𝗂𝗌ɦ 𝗂 ωα𝗌 𝗒ⱺυ𝗋 𝗀𝗂𝗋ᥣ. ㅤ "  ㅤ <3　 𓏼  　 ⏝⏝  </i></sub>
 </p>
 
 
