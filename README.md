@@ -1,13 +1,14 @@
 <div align="center">
-<img width="100" height="100" alt="Untitled157_20260308234826" src="https://github.com/user-attachments/assets/a54c3eb4-28c6-4092-839f-d0b258d1c51f" />
+
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=mgcoiiny&label=✦&color=c21807)
+![](https://komarev.com/ghpvc/?username=mgcoiiny&label=✦&color=151b54)
 
 >
 <p align="center">
-  <img width="550" height="550" alt="Başlıksız72_20260520192100" src="https://github.com/user-attachments/assets/d688b91d-edec-4359-843e-7afdc8f2f5d2" />
+  <img width="275" height="659" alt="Untitled181_20260526164741" src="https://github.com/user-attachments/assets/45369762-74c9-4f96-8aa8-f8d18c854f7a" />
+
 
 
 　　
