@@ -24,7 +24,7 @@
 
 
 
-[**STRAWPAGEৎ**](https://shadevxz.straw.page) [**TIKTOKৎ**](https://www.tiktok.com/@mgcoiin) [**INSTAGRAMৎ**](https://www.instagram.com/mgcoiin/) [**PRONOUNSPAGEৎ**](https://en.pronouns.page/@mgcoiin)
+[**STRAWPAGEৎ**](https://shadevxz.straw.page) [**ATABOOKৎ**](https://mgcoiin.atabook.org/#google_vignette) [**TIKTOKৎ**](https://www.tiktok.com/@mgcoiin) [**INSTAGRAMৎ**](https://www.instagram.com/mgcoiin/) [**PRONOUNSPAGEৎ**](https://en.pronouns.page/@mgcoiin)
 
 
 
