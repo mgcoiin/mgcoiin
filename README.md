@@ -7,7 +7,7 @@
 
 >
 <p align="center">
-<img width="736" height="690" alt="Başlıksız80_20260606160306" src="https://github.com/user-attachments/assets/6e1a232a-748c-4969-9919-3c938570dde2" />
+<img width="500" height="500" alt="Başlıksız80_20260606160306" src="https://github.com/user-attachments/assets/6e1a232a-748c-4969-9919-3c938570dde2" />
 
 
 
