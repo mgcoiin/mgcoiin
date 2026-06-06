@@ -3,11 +3,12 @@
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=mgcoiiny&label=✦&color=151b54)
+![](https://komarev.com/ghpvc/?username=mgcoiiny&label=✦&color=FFB6C1)
 
 >
 <p align="center">
-  <img width="275" height="659" alt="Untitled181_20260526164741" src="https://github.com/user-attachments/assets/45369762-74c9-4f96-8aa8-f8d18c854f7a" />
+  <img width="300" height="300" alt="Başlıksız80_20260606155608" src="https://github.com/user-attachments/assets/f3a036e2-46ef-48c8-87e8-a07a5b99adbe" />
+
 
 
 
