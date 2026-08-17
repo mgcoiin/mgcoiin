@@ -44,7 +44,7 @@
 <summary>𝓡EAD</summary>
 he / him only ok? im so f*cking (fucking) manly
 <br>
-IM into a lot of fandoms, HUGE EXTROVERT ALERT !!!!!! WATCH OUT !!!! DANGEROUS YO !!!!! #socialbutterfly . i mainly like kuroko no basket and bluelock nya, PLEASE INTERACT IF YK KNB PLEASE I BEG YOU AY. i like playing roblox #chudalert play w me asap. . .. ok... AND BMF IM ALWAYS LF FOR NEW FRIENDS PUHHLEASE YO. also i do have a flirty personality so i will most likely flirt with you when we get close, SET BOUNDARIES clearly if you do NOT want this. i dont read dnis often ^_^ wallahi im funny hmu NOW. #LOSER
+IM into a lot of fandoms, HUGE EXTROVERT ALERT !!!!!! WATCH OUT !!!! DANGEROUS YO !!!!! #socialbutterfly . i mainly like kuroko no basket and bluelock nya, PLEASE INTERACT IF YK KNB PLEASE I BEG YOU AY. i like playing roblox #chudalert play w me asap. . .. ok... AND BMF IM ALWAYS LF FOR NEW FRIENDS PUHHLEASE YO. also i do have a flirty personality so i will most likely flirt with you when we get close, SET BOUNDARIES clearly if you do NOT want this. i dont read dnis often ^_^ wallahi im funny hmu NOW. #LOSER som of ma kins are, aomine, ivan, dazai, kyoya, cirrus, crush, myunggi, geto, sae, aki, zanka and drew okai theres more but i forgot *evil nya.
 </details>
     </td>
   </tr>
