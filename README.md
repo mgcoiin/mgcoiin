@@ -38,7 +38,7 @@
 
 ‎ ‎ ${\textsf{\color{#D2B48C} 𝓢HADE}}$‎ ‎ ${\textsf{\color{#008B8B} 𝓐L}}$
      <br>
-     ‎ turkish . single ㅤ bi‎ ‎ ‎ 
+     ‎ turkish . single ㅤ 𝓑isex̲u̲a̲l̲ ‎ ‎ 
      <br>
      <details>
 <summary>𝓡EAD</summary>
@@ -146,7 +146,7 @@ i dont really have a big one free 4 most ppl 2 int BUT have common sense
 
 @tamonsbside + @mgcoiin = ♡
 
-[**𝓢Τ𝖱𝖠Ԝৎ**](https://shadevxz.straw.page) [**𝓐Τ𝖠𝖡ᝪᝪ𝖪ৎ**](https://mgcoiin.atabook.org/#google_vignette) [**𝑇𝖨𝖪Τᝪ𝖪ৎ**](https://www.tiktok.com/@mgcoiin) [**𝓘𝖭𝖲Τ𝖠ৎ**](https://www.instagram.com/mgcoiin/) [**𝓟𝖱ᝪ𝖭ᝪU𝖭𝖲Pৎ**](https://en.pronouns.page/@mgcoiin)
+[**𝓢Τ𝖱𝖠Ԝৎ**](https://shadevxz.straw.page)  [**𝑇𝖨𝖪Τᝪ𝖪ৎ**](https://www.tiktok.com/@mgcoiin) [**𝓘𝖭𝖲Τ𝖠ৎ**](https://www.instagram.com/mgcoiin/) 
 
 
 
