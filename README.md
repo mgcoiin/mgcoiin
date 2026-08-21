@@ -68,6 +68,7 @@ tmfgc ( kayde, kato, cherie ) <br>
 kaden my son, bax, cakie <br>
 pilot, inoue hi husb/p, nico hi sis   <br> 
 ‎imigbrogc ( fishy, vyn ) , kori  ‎<br>
+reri, choco, nick ‎<br>      
 lydia, sae, viper ily all ‎<br>
 L E T ME KNOW. IF U WANNA B HERE OK <br>
  
