@@ -63,7 +63,7 @@ IM into a lot of fandoms, HUGE EXTROVERT ALERT !!!!!! WATCH OUT !!!! DANGEROUS Y
       <details>
 <summary>ma homosexual 𝓕riends ♡ </summary>
 no specific order<br>
-luke, idin, scott <br>
+luke hi bff, idin, scott <br>
 kayde, kato, cherie <br>
 kaden my son, bax, cakie <br>
 pilot, inoue hi husb/p, nico hi sis   <br> 
